@@ -1,0 +1,1 @@
+# uwaterloo-mgte-2024-class-profile
